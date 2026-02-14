@@ -9,7 +9,7 @@
 </p>
 
 <p align="center">
-  <a href=https://farblefibble.straw.page/>strawpage</a>⠀ ›⠀ <a href=atabooklink/>atabook</a>⠀ ›⠀ <a href=https://x.com/ao3maxxing>twitter</a>
+  <a href=https://farblefibble.straw.page/>strawpage</a>⠀ ›⠀ <a href=https://ao3maxxing.atabook.org//>atabook</a>⠀ ›⠀ <a href=https://x.com/ao3maxxing>twitter</a>
 </p>
 
 <p align="center">
